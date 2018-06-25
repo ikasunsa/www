@@ -19,15 +19,15 @@
 <h3>
 <p><strong>&#21160;&#24577;&#32593;</strong></p>
 </h3>
-      <a href="https://d47mez3y167sd.cloudfront.net/1" rel="nofollow">&#20837;&#21475;</a>
-      <a href="http://61.228.185.226/1" rel="nofollow">&#20837;&#21475;</a>
-      <a href="https://vpinl.chunlan.cf/3" rel="nofollow">&#20837;&#21475;</a><br>
-      <a href="https://t.cn/RrIikuG" rel="nofollow">&#20837;&#21475;</a>
-      <a href="http://61.230.19.223/1" rel="nofollow">&#20837;&#21475;</a>
+      <a href="https://d6ab2knqhcqe4.cloudfront.net/1" rel="nofollow">&#20837;&#21475;</a>
+      <a href="http://219.85.107.164/1" rel="nofollow">&#20837;&#21475;</a>
+      <a href="https://dvtgnzvi.chunlan.cf/3" rel="nofollow">&#20837;&#21475;</a><br>
+      <a href="https://t.cn/RrIXw8u" rel="nofollow">&#20837;&#21475;</a>
+      <a href="http://61.228.179.95/1" rel="nofollow">&#20837;&#21475;</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">&#20837;&#21475;</a><br>
-      <a href="https://ckhaw.chunan.ml/3" rel="nofollow">&#20837;&#21475;</a>
-      <a href="http://iuzbpkk.vlbis.ga/1" rel="nofollow">&#20837;&#21475;</a>
-      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?lsokk" rel="nofollow">&#20837;&#21475;</a><br>
+      <a href="https://ovhglwnj.chunan.ml/3" rel="nofollow">&#20837;&#21475;</a>
+      <a href="http://tfqva.gfqmuw.cf/1" rel="nofollow">&#20837;&#21475;</a>
+      <a href="https://huashang.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php/?cufmpj" rel="nofollow">&#20837;&#21475;</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>&#32593;&#38376;</strong><br>
@@ -42,17 +42,17 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">&#20837;&#21475;</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">&#20837;&#21475;</a><br>
 <hr>
-<p><a href="https://t.cn/RrIikso" rel="nofollow">&#22823;&#32426;&#20803;&#26032;&#38395;</a></p>
-<p><a href="https://t.cn/RrIiFfJ" rel="nofollow">&#26032;&#21776;&#20154;&#35270;&#39057;</a></p>
-<p><a href="https://t.cn/RrIiFaY" rel="nofollow">&#26080;&#30028;&#27983;&#35272;</a></p>
-<p><a href="https://d47mez3y167sd.cloudfront.net/916415/" rel="nofollow">&#33829;&#25937;&#21892;&#33391;</a></p>
-<p><a href="https://d47mez3y167sd.cloudfront.net/0/" rel="nofollow">&#31070;&#24030;&#27491;&#36947;</a></p>
-<p><a href="https://d47mez3y167sd.cloudfront.net/69/" rel="nofollow">&#26126;&#35265;&#32593;</a></p>
-<p><a href="https://d47mez3y167sd.cloudfront.net/88/" rel="nofollow">&#36215;&#35785;&#27743;&#27901;&#27665;</a></p>
-<p><a href="https://t.cn/RrIikoU" rel="nofollow">&#19977;&#36864;&#33258;&#25937;1</a></p>
-<p><a href="https://d47mez3y167sd.cloudfront.net/tui/" rel="nofollow">&#19977;&#36864;&#33258;&#25937;2</a></p>
-<p><a href="https://t.cn/RrIikbM" rel="nofollow">&#32593;&#38376;&#35270;&#39057;1</a></p>
-<p><a href="http://dbkqyg.dhsiaj.gq/?from=852" rel="nofollow">&#32593;&#38376;&#35270;&#39057;2</a></p>
+<p><a href="https://t.cn/RrIXw1Z" rel="nofollow">&#22823;&#32426;&#20803;&#26032;&#38395;</a></p>
+<p><a href="https://t.cn/RrIXwDi" rel="nofollow">&#26032;&#21776;&#20154;&#35270;&#39057;</a></p>
+<p><a href="https://t.cn/RrIXA4y" rel="nofollow">&#26080;&#30028;&#27983;&#35272;</a></p>
+<p><a href="https://d6ab2knqhcqe4.cloudfront.net/916415/" rel="nofollow">&#33829;&#25937;&#21892;&#33391;</a></p>
+<p><a href="https://d6ab2knqhcqe4.cloudfront.net/0/" rel="nofollow">&#31070;&#24030;&#27491;&#36947;</a></p>
+<p><a href="https://d6ab2knqhcqe4.cloudfront.net/69/" rel="nofollow">&#26126;&#35265;&#32593;</a></p>
+<p><a href="https://d6ab2knqhcqe4.cloudfront.net/88/" rel="nofollow">&#36215;&#35785;&#27743;&#27901;&#27665;</a></p>
+<p><a href="https://t.cn/RrIXwjU" rel="nofollow">&#19977;&#36864;&#33258;&#25937;1</a></p>
+<p><a href="https://d6ab2knqhcqe4.cloudfront.net/tui/" rel="nofollow">&#19977;&#36864;&#33258;&#25937;2</a></p>
+<p><a href="https://t.cn/RrIXwIV" rel="nofollow">&#32593;&#38376;&#35270;&#39057;1</a></p>
+<p><a href="http://lxljj.rsokuutx.gq/?from=852" rel="nofollow">&#32593;&#38376;&#35270;&#39057;2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">&#38271;&#26149;&#30495;&#30456;&#20837;&#21475;</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">&#21271;&#20140;&#30495;&#30456;&#20837;&#21475;</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">&#22823;&#38470;&#30495;&#30456;&#20837;&#21475;</a><br></p>
@@ -78,7 +78,7 @@
 <p><strong>&#12304;&#20844;&#21578;&#12305;&#20195;&#29702;&#22823;&#21319;&#32423;&#65292;&#20840;&#31243;SSL&#21152;&#23494;&#20256;&#36865;&#65292;&#25903;&#25345;youtube&#35270;&#39057;&#12289;&#26032;&#21776;&#20154;&#35270;&#39057;&#12289;&#22823;&#32426;&#20803;&#35270;&#39057;&#25773;&#25918;&#12290;&#12290;&#12290;</strong></p>
 <p>&#32858;&#32536;&#38401;&#20195;&#29702;&#23433;&#21331;&#29256;&#24050;&#32463;&#21319;&#32423;,&#27983;&#35272;&#32593;&#39029;&#29305;&#21035;&#24555;&#65292;&#35270;&#39057;&#25773;&#25918;&#25903;&#25345;&#20840;&#23631;&#12290;&#12290;&#12290;<a href="https://github.com/dtw9/9/raw/master/201861502.apk">&#28857;&#20987;&#19979;&#36733;</a></p>
 <p>
-<a id="user-content-&#32858;&#32536;&#38401;&#20195;&#29702;&#19968;" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://25re4.deg.vestimequemegusta.com/" rel="nofollow">&#32858;&#32536;&#38401;&#20195;&#29702;&#19968;</a>
+<a id="user-content-&#32858;&#32536;&#38401;&#20195;&#29702;&#19968;" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://25rte34.jyge.vgivideo.com/" rel="nofollow">&#32858;&#32536;&#38401;&#20195;&#29702;&#19968;</a>
 </p>
 <p>
 <a id="user-content-&#32858;&#32536;&#38401;&#20195;&#29702;&#20108;" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5a-3a.gae.geass.tv/" rel="nofollow">&#32858;&#32536;&#38401;&#20195;&#29702;&#20108;</a>
